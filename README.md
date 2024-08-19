@@ -1,0 +1,1 @@
+# G600-microscope-YC25Q80P-2006546-firmware
